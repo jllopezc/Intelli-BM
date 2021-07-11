@@ -10,3 +10,10 @@ https://sharing.clickup.com/t/h/5q9khx/C6ZFDE1FYEAID0E
 
 ANEXO (DIAGRAMAS)
 https://doc.clickup.com/p/h/2zt3f-45/37efdef07b88c4a
+
+
+
+
+SPRINT #2
+
+https://docs.google.com/document/d/1Pnw_nxAL0LLtwipoM2_HHjIufC5h55kr/edit
